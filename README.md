@@ -53,8 +53,19 @@ I did a face reveal!! here ↓
 <details>
   <summary>Click me for diary day 3!</summary>
 
+  I got attacked today.<br>
+  ---<br>
+  I made rocket (P!) today!! I abd so much fun designing him even if I got the colour palette from a cheap Google site. he's just a baby.<br>
+  ---<br>
+  im getting tired. diaries will be short.😿
+</details>
+
+<details>
+  <summary>Click me for diary day 4!</summary>
+
   wip,will update tmrw.
 </details>
+
 
 
 </div>
